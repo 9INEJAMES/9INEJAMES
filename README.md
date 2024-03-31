@@ -11,7 +11,7 @@
 
 ### 📫 How to get in touch with me:
 
-- [**Facebook**](https://www.facebook.com/natthaphol.nira)
+- [**Facebook**](https://www.facebook.com/natthaphol.niraattisaikul)
 - [**Instagram**](https://www.instagram.com/9inejames)
 
 ---
